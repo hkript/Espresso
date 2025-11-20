@@ -1,2 +1,2 @@
 # Espresso
-Web3 Explorer
+Web3 Enthusiast
